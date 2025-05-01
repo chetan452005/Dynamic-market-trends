@@ -1,4 +1,4 @@
-<h1>Japan&nbsp;Japan Amyotrophic Lateral Sclerosis Treatment Market Size And Share | Industry Report, 2030</h1>
+<h1>&nbsp;Japan Amyotrophic Lateral Sclerosis Treatment Market Size And Share | Industry Report, 2030</h1>
 <p>Japan Amyotrophic Lateral Sclerosis Treatment Market Size, Share &amp; Trends Analysis Report By Type (Sporadic ALS, Familial ALS), By Treatment (Medication, {Riluzole, Edaravone, Nuedexta}, Speech Therapy, Respiratory Therapy, Physical Therapy, Others), &nbsp;By End User (Specialty Centers, Hospitals, Others), Regional Outlook, Growth Potential, Competitive Market Share &amp; Forecast, 2022 - 2032.</p>
 <div class="fs-mask output_outputText__Mdcrl TS_dkKeNHYB normalWeight_dkKeNHYB">The Japan Amyotrophic Lateral Sclerosis Treatment Market was valued at&nbsp;<strong>USD 321.52 Million</strong>&nbsp;in 2021 and is anticipated to attain<strong>&nbsp;USD 452.54 Million</strong>&nbsp;by 2028, with a compound annual growth rate (CAGR) of<strong>&nbsp;5.86%</strong>&nbsp;from 2021 to 2028, as reported by IMIR Market Research Pvt Ltd.</div>
 <div class="fs-mask output_outputText__Mdcrl TS_dkKeNHYB normalWeight_dkKeNHYB">
